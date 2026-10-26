@@ -1,4 +1,4 @@
-# Hi, I'm Marjorie! 👋
+# Hi, I'm Karylle! 👋
 
 🎓 I'm a Bachelor of Science in Information Technology student at National University – MOA.
 
